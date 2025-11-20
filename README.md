@@ -1,16 +1,57 @@
-## Hi there 👋
+<p align="center">
+  <img width="400" height="300" src="https://i.pinimg.com/736x/d6/97/e2/d697e2c18a40989f5d385ba9aad66e10.jpg">
+</p>
 
-<!--
-**Azresash/Azresash** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center">
+︶꒦꒷♡꒷꒦︶
+  </p> 
 
-Here are some ideas to get you started:
+  <p align="center">
+Hi i'm Rot or Scrap. Ne/Nem prns.
+  </p>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+  <p align="center">
+Mcyt + Roblox fandom based, a bit of anime as well.
+  </p>
+
+  <p align="center">
+⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
+  </p> 
+
+  <p align="center">
+Do not Copy nor Take inspo WITHOUT perms!
+  </p> 
+
+  <p align="center">
+C + h is fine but do not cover unless explict permissions are provided.. 
+  </p> 
+
+  <p align="center">
+Wemmbu + Dol9hin heavykin.. Wemmbu or Dolphin for names other than Rot or Scrap is okay and idm at all!
+  </p>
+
+  <p align="center">
+⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
+  </p>
+
+  <p align="center">
+Asking for a gift pony is fine but give credit!!
+  </p> 
+
+  <p align="center">
+image creds belong to @Saiimon
+  </p>
+
+  <p align="center">
+꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
+  </p> 
+
+<p align="center">
+  <b> My Links <br>
+  <a href= "https://shatteredheart.atabook.org"> Atabook </a> .☘︎ ݁˖
+  <a href= "https://corrodedsoul.straw.page"> Strawpage </a>
+  <br>
+  <p align="center">
+  <a href= "https://en.pronouns.page/@Fallingsouls"> Pronoun Page </a> ⭑.ᐟ
+  <a href= "https://guns.lol/azresash"> guns.lol </a> 
+  <br>
