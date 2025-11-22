@@ -45,7 +45,7 @@ image creds belong to @Saiimon
   <p align="center">
 ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
 
-    <p align="center">
+   <p align="center">
 ฅ^>⩊<^ ฅ
   </p> 
 
