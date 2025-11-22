@@ -50,7 +50,7 @@ image creds belong to @Saiimon + @Rivasha
   </p> 
 
   <p align="center">
-Hi Xin! ^_^
+Hi Xin.. Hi Rayz! ^_^
   </p>
 
 <p align="center">
