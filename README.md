@@ -55,14 +55,7 @@ Hi Xin! ^_^
 
 <p align="center">
 ˚₊‧꒰ა ✦ ໒꒱ ‧₊˚
-  </p> 
-
-
-  <p align="center">
-  <img width="400" height="500" src="https://i.pinimg.com/736x/7d/c8/18/7dc81853a226d170ef7de6c75cb2546e.jpg">
-</p>
-  
-  </p> 
+ </p> 
 
 <p align="center">
   <b> My Links <br>
@@ -73,3 +66,11 @@ Hi Xin! ^_^
   <a href= "https://en.pronouns.page/@Fallingsouls"> Pronoun Page </a> ⭑.ᐟ
   <a href= "https://guns.lol/azresash"> guns.lol </a> 
   <br>
+
+  <p align="center">
+ੈ✩‧₊˚˖ ᡣ𐭩 ⊹ ࣪ ౨ৎ˚₊˙⋆✮
+ </p> 
+
+  <p align="center">
+  <img width="400" height="500" src="https://i.pinimg.com/736x/7d/c8/18/7dc81853a226d170ef7de6c75cb2546e.jpg">
+</p>
