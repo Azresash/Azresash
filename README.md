@@ -44,6 +44,24 @@ image creds belong to @Saiimon
 
   <p align="center">
 ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
+
+    <p align="center">
+ฅ^>⩊<^ ฅ
+  </p> 
+
+  <p align="center">
+Hi Xin! ^_^
+  </p>
+
+<p align="center">
+˚₊‧꒰ა ✦ ໒꒱ ‧₊˚
+  </p> 
+
+
+  <p align="center">
+  <img width="400" height="500" src="https://i.pinimg.com/736x/7d/c8/18/7dc81853a226d170ef7de6c75cb2546e.jpg">
+</p>
+  
   </p> 
 
 <p align="center">
