@@ -54,7 +54,7 @@ Hi Xin.. Hi Rayz! ^_^
   </p>
 
   <p align="center">
-  ![][(https://komarev.com/ghpvc/?username=your-github-Azresash&label=Hearts&color=955d545&style=flat-square)]
+  ![](https://komarev.com/ghpvc/?username=your-github-Azresash&label=Hearts&color=955d545&style=flat-square)
 
 <p align="center">
 ˚₊‧꒰ა ✦ ໒꒱ ‧₊˚
