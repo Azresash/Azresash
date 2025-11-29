@@ -54,7 +54,7 @@ Hi Xin.. Hi Rayz! ^_^
   </p>
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=your-github-Azresash&label=Hearts&color=913a7e&style=plastic&abbreviated=true&base=74"></a>
+  <img src="https://komarev.com/ghpvc/?username=your-github-Azresash&label=Hearts&color=913a7e&style=plastic&abbreviated=true&base=74">
 </p>
 
 <p align="center">
