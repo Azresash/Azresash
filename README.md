@@ -53,8 +53,9 @@ image creds belong to @Saiimon + @Rivasha
 Hi Xin.. Hi Rayz! ^_^
   </p>
 
-  <p align="center">
-  ![](https://komarev.com/ghpvc/?username=your-github-Azresash&label=Hearts&color=913a7e&style=plastic)
+<p align="center">
+  <img src="https://komarev.com/ghpvc/?username=your-github-Azresash&label=Hearts&color=913a7e&style=plastic&abbreviated=true&base=74"></a>
+</p>
 
 <p align="center">
 ˚₊‧꒰ა ✦ ໒꒱ ‧₊˚
