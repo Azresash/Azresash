@@ -7,7 +7,7 @@
   </p> 
 
   <p align="center">
-Hi i'm Rot or Scrap. Ne/Nem prns.
+Hi i'm Rafa or Rot. Ne/Nem prns.
   </p>
 
   <p align="center">
