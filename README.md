@@ -7,11 +7,11 @@
   </p> 
 
   <p align="center">
-Hi i'm Rafa or Rot. Ne/Nem prns.
+Hi i'm Rafa, Rory, or Rot. Ne/Nem prns, I like the letter R.
   </p>
 
   <p align="center">
-Mcyt + Roblox fandom based, a bit of anime as well.
+Mcyt + Roblox fandom based, genshin aswell.
   </p>
 
   <p align="center">
@@ -19,7 +19,7 @@ Mcyt + Roblox fandom based, a bit of anime as well.
   </p> 
 
   <p align="center">
-Do not Copy nor Take inspo WITHOUT perms!
+Do not Copy nor Take inspo WITHOUT permission!
   </p> 
 
   <p align="center">
@@ -27,7 +27,7 @@ C + h is fine but do not cover unless explict permissions are provided..
   </p> 
 
   <p align="center">
-Wemmbu + Dol9hin heavykin.. Wemmbu or Dolphin for names other than Rot or Scrap is okay and idm at all!
+Wemmbu + Mugm heavykin.. Wemmbu or Mugm for names other than Rafa, Rory, or Rot is okay and idm at all!
   </p>
 
   <p align="center">
