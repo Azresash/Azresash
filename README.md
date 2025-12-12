@@ -1,5 +1,5 @@
 <p align="center">
-  <img width="400" height="500" src="https://i.pinimg.com/736x/d6/97/e2/d697e2c18a40989f5d385ba9aad66e10.jpg">
+  <img width="400" height="500" src="https://i.pinimg.com/1200x/52/58/a1/5258a158ec136819e0ba0ba950c46c55.jpg">
 </p>
 
 <p align="center">
@@ -39,7 +39,7 @@ Asking for a gift pony is fine but give credit!!
   </p> 
 
   <p align="center">
-image creds belong to @Saiimon + @Rivasha
+image creds belong to @frozenblues + @PIYATHIDA_24
   </p>
 
   <p align="center">
@@ -83,5 +83,5 @@ Color my tree what-
  </p> 
 
   <p align="center">
-  <img width="400" height="500" src="https://i.pinimg.com/736x/7d/c8/18/7dc81853a226d170ef7de6c75cb2546e.jpg">
+  <img width="400" height="500" src="https://i.pinimg.com/736x/04/46/07/0446077a14c4e500f14753a8633a2ccf.jpg">
 </p>
