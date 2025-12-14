@@ -27,7 +27,7 @@ C + h is fine but do not cover unless explict permissions are provided..
   </p> 
 
   <p align="center">
-Wemmbu + Mugm heavykin.. Wemmbu or Mugm for names other than Rafa, Rory, or Rot is okay and idm at all!
+Wemmbu + Mafioso heavykin.. Wemmbu or Mafioso for names other than Rafa, Rory, or Rot is okay and idm at all!
   </p>
 
   <p align="center">
