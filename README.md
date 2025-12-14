@@ -1,5 +1,5 @@
 <p align="center">
-  <img width="400" height="500" src="https://i.pinimg.com/1200x/52/58/a1/5258a158ec136819e0ba0ba950c46c55.jpg">
+  <img width="400" height="500" src="[https://i.pinimg.com/1200x/52/58/a1/5258a158ec136819e0ba0ba950c46c55.jpg]">
 </p>
 
 <p align="center">
@@ -50,7 +50,7 @@ image creds belong to @frozenblues + @PIYATHIDA_24
   </p> 
 
   <p align="center">
-Hi Xin.. Hi Rayz! ^_^
+Hi Xin.. Hi Tsuki! ^_^
   </p>
 
 <p align="center">
