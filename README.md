@@ -7,7 +7,7 @@
   </p> 
 
   <p align="center">
-Hi i'm Rafa, Rory, or Rot. Ne/Nem prns, I like the letter R.
+Hi i'm Rafa, Rory, or Crush. Ne/Nem prns, I like the letter R.
   </p>
 
   <p align="center">
