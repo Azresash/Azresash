@@ -39,7 +39,7 @@ Asking for a gift pony is fine but give credit!!
   </p> 
 
   <p align="center">
-image creds belong to @frozenblues + @PIYATHIDA_24
+image creds belong to @AKRXSILVERING
   </p>
 
   <p align="center">
