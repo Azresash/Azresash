@@ -1,5 +1,5 @@
 <p align="center">
-  <img width="400" height="500" src="https://i.pinimg.com/1200x/61/50/bc/6150bc0de788eb87868b188a8ffc3e0b.jpg">
+  <img width="400" height="500" src="https://static.wikia.nocookie.net/forsaken2024/images/6/6d/NoliLogoNew.png/revision/latest?cb=20251212214735">
 </p>
 
 <p align="center">
