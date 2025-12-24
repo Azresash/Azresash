@@ -72,11 +72,11 @@ Hi Xin.. Hi Tsuki! ^_^
   <br>
 
   <p align="center">
-Color my tree what-
+Have a Merry Christmas!
  </p> 
 
   <p align="center">
-  <a href= "https://colormytree.me/2025/01KB8KYD9VQAKCFE4D8VBSHQ30"> My Tree </a> ๑⋆˙⟡
+  <a href= "https://santatracker.google.com"> Countdown </a> ๑⋆˙⟡
 
   <p align="center">
 ੈ✩‧₊˚˖ ᡣ𐭩 ⊹ ࣪ ౨ৎ˚₊˙⋆✮
