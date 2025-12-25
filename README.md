@@ -27,7 +27,7 @@ C + h is fine but do not cover unless explict permissions are provided..
   </p> 
 
   <p align="center">
-Forsaken (Noli, Mafioso, + 1x) + Wemmbu heavykin.. Kin for names other than Rory, Crush, or Rafa is okay and idm at all!
+Forsaken (Noli, Mafioso, 1x, + Azure) + Wemmbu heavykin.. Kin for names other than Rory, Crush, or Rafa is okay and idm at all!
   </p>
 
   <p align="center">
