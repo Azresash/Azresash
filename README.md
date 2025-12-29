@@ -39,7 +39,7 @@ Asking for a gift pony is fine but give credit!!
   </p> 
 
   <p align="center">
-image creds belong to @AKRXSILVERING
+image creds belong to @ILuvChancey on pinterest
   </p>
 
   <p align="center">
@@ -83,5 +83,5 @@ Have a Merry Christmas!
  </p> 
 
   <p align="center">
-  <img width="400" height="500" src="https://i.pinimg.com/1200x/16/18/da/1618da56fee4d3a56c1772721b1def52.jpg">
+  <img width="400" height="500" src="https://i.pinimg.com/736x/91/a8/33/91a833b2fd0833f8825f576cba21a0d1.jpg">
 </p>
