@@ -64,7 +64,7 @@ Hi Tsuki.. Hi Ray!! hi to u egg as well! ^_^
 <p align="center">
   <b> My Links <br>
   <a href= "https://shatteredheart.atabook.org"> Atabook </a> .☘︎ ݁˖
-  <a href= "https://perilous.straw.page"> Strawpage </a>
+  <a href= "https://malfunct1on.straw.page"> Strawpage </a>
   <br>
   <p align="center">
   <a href= "https://en.pronouns.page/@Fallingsouls"> Pronoun Page </a> ⭑.ᐟ
