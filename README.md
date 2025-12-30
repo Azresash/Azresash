@@ -76,7 +76,7 @@ HI XINNY / KAY :D
  </p> 
 
   <p align="center">
-  <a href= "https://github.com/ringmasterr"> im married </a> ๑⋆˙⟡
+  <a href= "https://github.com/ringmasterr"> im married (plat) </a> ๑⋆˙⟡
 
   <p align="center">
 ੈ✩‧₊˚˖ ᡣ𐭩 ⊹ ࣪ ౨ৎ˚₊˙⋆✮
