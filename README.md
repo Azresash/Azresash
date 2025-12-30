@@ -72,11 +72,11 @@ Hi Xin.. Hi Tsuki! ^_^
   <br>
 
   <p align="center">
-Have a Merry Christmas!
+HI XINNY / KAY :D
  </p> 
 
   <p align="center">
-  <a href= "https://santatracker.google.com"> Countdown </a> ๑⋆˙⟡
+  <a href= "https://github.com/ringmasterr"> im married </a> ๑⋆˙⟡
 
   <p align="center">
 ੈ✩‧₊˚˖ ᡣ𐭩 ⊹ ࣪ ౨ৎ˚₊˙⋆✮
