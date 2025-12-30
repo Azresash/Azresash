@@ -50,7 +50,7 @@ image creds belong to @ILuvChancey on pinterest
   </p> 
 
   <p align="center">
-Hi Xin.. Hi Tsuki! ^_^
+Hi Tsuki.. Hi Ray!! hi to u egg as well! ^_^
   </p>
 
 <p align="center">
