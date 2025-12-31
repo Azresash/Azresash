@@ -58,6 +58,9 @@ Hi Tsuki.. Hi Ray!! hi to u egg as well! ^_^
 </p>
 
 <p align="center">
+  <a href= "https://rentry.co/43ow244k"> Rentry </a> ⭑.ᐟ
+
+<p align="center">
 ˚₊‧꒰ა ✦ ໒꒱ ‧₊˚
  </p> 
 
