@@ -39,7 +39,7 @@ Asking for a gift pony is fine but give credit!!
   </p> 
 
   <p align="center">
-image creds belong to @ILuvChancey on pinterest
+image creds belong to 0xycont11n on pinterest
   </p>
 
   <p align="center">
@@ -86,5 +86,5 @@ HI XINNY / KAY :D
  </p> 
 
   <p align="center">
-  <img width="400" height="500" src="https://i.pinimg.com/736x/91/a8/33/91a833b2fd0833f8825f576cba21a0d1.jpg">
+  <img width="400" height="500" src="https://i.pinimg.com/736x/99/c2/eb/99c2eb8212cfb72b452c19a743a29f4a.jpg">
 </p>
