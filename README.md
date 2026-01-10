@@ -27,7 +27,7 @@ C + h is fine but do not cover unless explict permissions are provided..
   </p> 
 
   <p align="center">
-Noli + Telamon heavykin.. Kin for names other than my usual names is okay and idm at all!
+Noli + Scythe heavykin.. Kin for names other than my usual names is okay and idm at all!
   </p>
 
   <p align="center">
