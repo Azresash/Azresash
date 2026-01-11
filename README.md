@@ -79,7 +79,7 @@ HI XINNY / KAY :D
  </p> 
 
   <p align="center">
-  <a href= "https://github.com/ringmasterr"> im married (plat) </a> ๑⋆˙⟡
+  <a href= "https://github.com/ringmasterr"> the subspace to my scythe </a> ๑⋆˙⟡
 
   <p align="center">
 ੈ✩‧₊˚˖ ᡣ𐭩 ⊹ ࣪ ౨ৎ˚₊˙⋆✮
