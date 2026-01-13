@@ -50,7 +50,7 @@ image creds belong to aamx1ii on pinterest
   </p> 
 
   <p align="center">
-Hi Ray, Egg, and Ren! ^o^
+Hi friends! ^o^
   </p>
 
 <p align="center">
