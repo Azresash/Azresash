@@ -59,6 +59,7 @@ Hi friends! ^o^
 
 <p align="center">
   <a href= "https://rentry.co/43ow244k"> Rentry </a> ౨ৎ
+  <br>
 
 <p align="center">
 ˚₊‧꒰ა ✦ ໒꒱ ‧₊˚
