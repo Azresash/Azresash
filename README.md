@@ -27,7 +27,7 @@ C + h is fine but do not cover unless explict permissions are provided..
   </p> 
 
   <p align="center">
-Noli + Scythe heavykin.. Kin for names other than my usual names is okay and idm at all!
+Noli, Scythe, and Parrot are my heavykins. Use them for names whenever.
   </p>
 
   <p align="center">
