@@ -23,7 +23,7 @@ Do not Copy nor Take inspo WITHOUT permission!
   </p> 
 
   <p align="center">
-C + h is fine but do not cover unless explict permissions are provided.. 
+c + h always unless with friends. Do NOT cover unless friend. 
   </p> 
 
   <p align="center">
