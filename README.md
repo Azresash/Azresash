@@ -42,6 +42,10 @@
 ᴄʜᴇᴄᴋ ʙʏɪ ᴀɴᴅ ᴅɴɪ ʙᴇꜰᴏʀᴇ ɪɴᴛᴇʀᴀᴄᴛɪɴɢ ᴀᴛ ᴀʟʟ
   </p>
 
+  <p align="center">
+﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+  </p> 
+
    <p align="center">
 ʜɪ xɪɴɴʏ / ᴋᴀʏ!
  </p> 
@@ -54,17 +58,16 @@
 </p>
 
 <p align="center">
-  <a href= "https://rentry.co/43ow244k"> Rentry </a> ౨ৎ
-  <br>
-  
+﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+  </p> 
+
 <p align="center">
-  <b> My Links <br>
-  <a href= "https://azresash.atabook.org"> Atabook </a> .☘︎ ݁˖
-  <a href= "https://malfunct1on.straw.page"> Strawpage </a>
-  <br>
-  <p align="center">
-  <a href= "https://en.pronouns.page/@Fallingsouls"> Pronoun Page </a> ⭑.ᐟ
-  <a href= "https://guns.lol/azresash"> guns.lol </a> 
+  <b> ʟɪɴᴋꜱ <br>
+  <a href= "https://azresash.atabook.org"> ᴀᴛᴀ </a> ×
+  <a href= "https://malfunct1on.straw.page"> ꜱᴛʀᴀᴡᴘᴀɢᴇ </a> ×
+  <a href= "https://en.pronouns.page/@Fallingsouls"> ᴘʀɴꜱ.ᴘᴀɢᴇ </a> ×
+  <a href= "https://guns.lol/azresash"> ɢᴜɴꜱ.ʟᴏʟ </a> 
+  <a href= "https://rentry.co/43ow244k"> ʀᴇɴᴛʀʏ </a> 
   <br>
 
   <p align="center">
