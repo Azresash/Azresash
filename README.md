@@ -1,4 +1,7 @@
+<p align="center">
 ## being remade
+</p>
+
 <p align="center">
 ︶꒦꒷♡꒷꒦︶
   </p> 
