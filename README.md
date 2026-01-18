@@ -80,7 +80,7 @@ HI XINNY / KAY :D
  </p> 
 
   <p align="center">
-  <a href= "https://github.com/ringmasterr"> the subspace to my scythe </a> ๑⋆˙⟡
+  <a href= "https://github.com/ringmasterr"> the parrot to my wifies </a> ๑⋆˙⟡
 
   <p align="center">
 ੈ✩‧₊˚˖ ᡣ𐭩 ⊹ ࣪ ౨ৎ˚₊˙⋆✮
