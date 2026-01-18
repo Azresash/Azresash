@@ -66,3 +66,7 @@ HI XINNY / KAY :D
   <a href= "https://en.pronouns.page/@Fallingsouls"> Pronoun Page </a> ⭑.ᐟ
   <a href= "https://guns.lol/azresash"> guns.lol </a> 
   <br>
+
+  <p align="center">
+──────────────────── ୨୧────────────────────
+  </p>
