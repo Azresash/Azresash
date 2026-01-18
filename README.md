@@ -1,5 +1,5 @@
   <p align="center">
-  <img width="800" height="400" src="https://64.media.tumblr.com/98ba11df21978585c625c791bae815e1/0e71ab0653a89d86-41/s640x960/30f1a82cfc0268622fee6087935d26c0b7defe83.pnj">
+  <img width="800" height="400" src="https://media.canva.com/v2/image-resize/format:PNG/height:240/quality:100/uri:ifs%3A%2F%2FM%2F7c1e82be-fb11-4458-a0c4-133b045ef47f/watermark:F/width:600?csig=AAAAAAAAAAAAAAAAAAAAAOd1mYIxLpxZ3VQHOgVJU2rYRtya1ppVNVZ4-b5d0oWy&exp=1768793633&osig=AAAAAAAAAAAAAAAAAAAAABvel0hjMtOGcfiE105Xv03iCtSmMv57MviKs9TQQUjm&signer=media-rpc&x-canva-quality=screen_2x">
 </p>
 
 <p align="center">
