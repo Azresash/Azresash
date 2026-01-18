@@ -23,31 +23,31 @@
 </p>
 
 <p align="center">
-︶꒦꒷♡꒷꒦︶
+﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
   </p> 
 
   <p align="center">
-wip
+ᴍᴏꜱᴛʟʏ ᴏꜰꜰᴛᴀʙ
   </p>
 
   <p align="center">
-wip
+ᴅᴏ ɴᴏᴛ ᴄᴏᴘʏ ɴᴏʀ ꜱᴛᴇᴀʟ ᴜɴʟᴇꜱꜱ ᴘᴇʀᴍꜱ ɢɪᴠᴇɴ
   </p>
 
   <p align="center">
-wip
+ᴀʟᴡᴀʏꜱ ɪɴᴛᴇʀᴀᴄᴛ ᴡɪᴛʜ ᴄᴀᴜᴛɪᴏɴ
   </p> 
 
   <p align="center">
-wip
+ᴄʜᴇᴄᴋ ʙʏɪ ᴀɴᴅ ᴅɴɪ ʙᴇꜰᴏʀᴇ ɪɴᴛᴇʀᴀᴄᴛɪɴɢ ᴀᴛ ᴀʟʟ
   </p>
 
    <p align="center">
-HI XINNY / KAY :D
+ʜɪ xɪɴɴʏ / ᴋᴀʏ!
  </p> 
 
   <p align="center">
-  <a href= "https://github.com/ringmasterr"> the parrot to my wifies </a> ๑⋆˙⟡
+  <a href= "https://github.com/ringmasterr"> ᴛʜᴇ ᴘᴀʀʀᴏᴛ ᴛᴏ ᴍʏ ᴡɪꜰɪᴇꜱ </a> ๑⋆˙⟡
 
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=your-github-Azresash&label=Spyglasses&color=6a4297&style=plastic&abbreviated=true&base=74">
