@@ -7,54 +7,30 @@
   </p> 
 
   <p align="center">
-Hi i'm Rot or Crush. Ne/Nem prns, I like the letter R and C ok.
+wip
   </p>
 
   <p align="center">
-Mcyt + Roblox fandom based, genshin aswell.
+wip
   </p>
 
   <p align="center">
-⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
+wip
   </p> 
 
   <p align="center">
-Do not Copy nor Take inspo WITHOUT permission!
-  </p> 
-
-  <p align="center">
-c + h always unless with friends. Do NOT cover unless friend. 
-  </p> 
-
-  <p align="center">
-Noli, Scythe, and Parrot are my heavykins. Use them for names whenever.
+wip
   </p>
-
-  <p align="center">
-⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
-  </p>
-
-  <p align="center">
-Asking for a gift pony is fine but give credit!!
-  </p> 
-
-  <p align="center">
-image creds belong to aamx1ii on pinterest
-  </p>
-
-  <p align="center">
-꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
 
    <p align="center">
-ฅ^>⩊<^ ฅ
-  </p> 
+HI XINNY / KAY :D
+ </p> 
 
   <p align="center">
-Hi friends! ^o^
-  </p>
+  <a href= "https://github.com/ringmasterr"> the parrot to my wifies </a> ๑⋆˙⟡
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=your-github-Azresash&label=Hearts&color=913a7e&style=plastic&abbreviated=true&base=74">
+  <img src="https://komarev.com/ghpvc/?username=your-github-Azresash&label=Spyglasses&color=5b417a&style=plastic&abbreviated=true&base=74">
 </p>
 
 <p align="center">
