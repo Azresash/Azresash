@@ -1,3 +1,7 @@
+  <p align="center">
+  <img width="600" height="400" src="https://64.media.tumblr.com/98ba11df21978585c625c791bae815e1/0e71ab0653a89d86-41/s640x960/30f1a82cfc0268622fee6087935d26c0b7defe83.pnj">
+</p>
+
 <p align="center">
   being remade
 </p>
@@ -46,7 +50,3 @@ HI XINNY / KAY :D
   <a href= "https://en.pronouns.page/@Fallingsouls"> Pronoun Page </a> ⭑.ᐟ
   <a href= "https://guns.lol/azresash"> guns.lol </a> 
   <br>
-
-  <p align="center">
-  <img width="400" height="700" src="https://i.pinimg.com/736x/f3/13/ce/f313ce6141aaf5f1d5504e31fe341b14.jpg">
-</p>
