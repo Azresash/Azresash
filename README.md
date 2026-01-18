@@ -30,7 +30,7 @@ HI XINNY / KAY :D
   <a href= "https://github.com/ringmasterr"> the parrot to my wifies </a> ๑⋆˙⟡
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=your-github-Azresash&label=Spyglasses&color=5b417a&style=plastic&abbreviated=true&base=74">
+  <img src="https://komarev.com/ghpvc/?username=your-github-Azresash&label=Spyglasses&color=6a4297&style=plastic&abbreviated=true&base=74">
 </p>
 
 <p align="center">
