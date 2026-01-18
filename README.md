@@ -3,7 +3,19 @@
 </p>
 
 <p align="center">
-  being remade
+ $${\color{white}Running away is{}}$$
+</p>
+
+<p align="center">
+ $${\color{6a4297}Easy{}}$$
+</p>
+
+<p align="center">
+ $${\color{white}Its the leave that's{}}$$
+</p>
+
+<p align="center">
+ $${\color{6a4297}Hard{}}$$
 </p>
 
 <p align="center">
