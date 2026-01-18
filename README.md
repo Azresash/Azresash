@@ -7,7 +7,7 @@
 </p>
 
 <p align="center">
- $${\color{6c4b89}Easy{}}$$
+ $${\color{purple}Easy{}}$$
 </p>
 
 <p align="center">
@@ -15,7 +15,7 @@
 </p>
 
 <p align="center">
- $${\color{6c4b89}Hard{}}$$
+ $${\color{purple}Hard{}}$$
 </p>
 
 <p align="center">
