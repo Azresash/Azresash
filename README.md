@@ -1,7 +1,4 @@
-<p align="center">
-  <img width="400" height="500" src="https://static.wikia.nocookie.net/forsaken2024/images/6/6d/NoliLogoNew.png/revision/latest?cb=20251212214735">
-</p>
-
+##being remade
 <p align="center">
 ︶꒦꒷♡꒷꒦︶
   </p> 
