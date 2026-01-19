@@ -64,7 +64,7 @@
 <p align="center">
   <b> ʟɪɴᴋꜱ <br>
   <a href= "https://azresash.atabook.org"> ᴀᴛᴀ </a> ×
-  <a href= "https://malfunct1on.straw.page"> ꜱᴛʀᴀᴡᴘᴀɢᴇ </a> ×
+  <a href= "https://wifiescore.straw.page"> ꜱᴛʀᴀᴡᴘᴀɢᴇ </a> ×
   <a href= "https://en.pronouns.page/@Fallingsouls"> ᴘʀɴꜱ.ᴘᴀɢᴇ </a> ×
   <a href= "https://guns.lol/azresash"> ɢᴜɴꜱ.ʟᴏʟ </a> ×
   <a href= "https://rentry.co/43ow244k"> ʀᴇɴᴛʀʏ </a> 
