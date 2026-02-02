@@ -1,29 +1,29 @@
   <p align="center">
-──────────────────── ୨୧────────────────────
+︵‿︵‿︵‿︵︵‿︵‿︵‿︵︵‿︵‿︵‿︵‿︵‿︵‿︵︵‿︵‿︵‿︵︵‿︵‿︵‿︵
   </p>
   
   <p align="center">
-  <img width="800" height="400" src="https://media.canva.com/v2/image-resize/format:PNG/height:240/quality:100/uri:ifs%3A%2F%2FM%2F7c1e82be-fb11-4458-a0c4-133b045ef47f/watermark:F/width:600?csig=AAAAAAAAAAAAAAAAAAAAAOd1mYIxLpxZ3VQHOgVJU2rYRtya1ppVNVZ4-b5d0oWy&exp=1768793633&osig=AAAAAAAAAAAAAAAAAAAAABvel0hjMtOGcfiE105Xv03iCtSmMv57MviKs9TQQUjm&signer=media-rpc&x-canva-quality=screen_2x">
+  <img width="800" height="400" src="https://media.canva.com/v2/image-resize/format:PNG/height:281/quality:100/uri:ifs%3A%2F%2FM%2Fcdfb4fda-6cd8-4dbc-8643-e38e855e63e0/watermark:F/width:500?csig=AAAAAAAAAAAAAAAAAAAAANONy_60tQIzmM8k6Nu1JZ0qGgYF9f4YUzixBn25o2-G&exp=1770014220&osig=AAAAAAAAAAAAAAAAAAAAAGlaDJ7RhoxurzMg5tDw80jWJfvUZksAsPkV3-h68KAS&signer=media-rpc&x-canva-quality=screen_2x">
 </p>
 
 <p align="center">
- $${\color{white}Running away is{}}$$
+ $${\color{red}I-I-I{}}$$
 </p>
 
 <p align="center">
- $${\color{purple}Easy{}}$$
+ $${\color{white}I Don't Speak German{}}$$
 </p>
 
 <p align="center">
- $${\color{white}Its the leave that's{}}$$
+ $${\color{red}I-I-I{}}$$
 </p>
 
 <p align="center">
- $${\color{purple}Hard{}}$$
+ $${\color{white}But I can if you Like{}}$$
 </p>
 
 <p align="center">
-﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+●～●～●～●～●～●～●～●～●～●～●～●～
   </p> 
 
   <p align="center">
@@ -43,7 +43,7 @@
   </p>
 
   <p align="center">
-﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+●～●～●～●～●～●～●～●～●～●～●～●～
   </p> 
      
 <p align="center">
@@ -55,14 +55,14 @@
  </p> 
 
   <p align="center">
-  <a href= "https://github.com/ringmasterr"> ᴛʜᴇ ᴘᴀʀʀᴏᴛ ᴛᴏ ᴍʏ ᴡɪꜰɪᴇꜱ </a> ๑⋆˙⟡
+  <a href= "https://github.com/ringmasterr"> #ʙᴇꜱᴛꜰʀɪᴇɴᴅ </a> ‹𝟹
 
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=your-github-Azresash&label=Spyglasses&color=6a4297&style=plastic&abbreviated=true&base=74">
 </p>
 
 <p align="center">
-﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+●～●～●～●～●～●～●～●～●～●～●～●～
   </p> 
 
 <p align="center">
@@ -75,5 +75,9 @@
   <br>
 
   <p align="center">
-──────────────────── ୨୧────────────────────
+  <img width="800" height="400" src="https://media.canva.com/v2/image-resize/format:PNG/height:281/quality:100/uri:ifs%3A%2F%2FM%2F1e65e764-e9f7-429a-ac3b-1b16ea43684e/watermark:F/width:500?csig=AAAAAAAAAAAAAAAAAAAAABZObu3HwDNPmYqGCstbQK_uw2n-LT2ZT7bWva6R1six&exp=1770014630&osig=AAAAAAAAAAAAAAAAAAAAAB40nMLi-HbYJ-LvExDcubNbLYg1QuK0tSKTlzECjJST&signer=media-rpc&x-canva-quality=screen_2x">
+</p>
+
+  <p align="center">
+︵‿︵‿︵‿︵︵‿︵‿︵‿︵︵‿︵‿︵‿︵‿︵‿︵‿︵︵‿︵‿︵‿︵︵‿︵‿︵‿︵
   </p>
