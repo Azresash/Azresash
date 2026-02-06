@@ -1,7 +1,8 @@
+<p align="center">
+ $${\color{darkorange}︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵{}}$$
+</p>
+
   <p align="center">
-︵‿︵‿︵‿︵︵‿︵‿︵‿︵︵‿︵‿︵‿︵‿︵‿︵‿︵︵‿︵‿︵‿︵︵‿︵‿︵‿︵
-  </p>
-    <p align="center">
   <img width="800" height="400" src="https://64.media.tumblr.com/4ba268ee3371d952d627f8a6abe7d2a1/6f43c62ae0a5e7ad-b6/s500x750/48933a39fc19a98e982b9c3d11e166768a725e53.pnj">
 </p>
   <p align="center">
@@ -9,19 +10,23 @@
 </p>
 
 <p align="center">
- $${\color{red}I-I-I{}}$$
+ $${\color{white}I Disappeared{}}$$
 </p>
 
 <p align="center">
- $${\color{white}I Don't Speak German{}}$$
+ $${\color{white}Like It's My{}}$$
 </p>
 
 <p align="center">
- $${\color{red}I-I-I{}}$$
+ $${\color{orange}Last Night{}}$$
 </p>
 
 <p align="center">
- $${\color{white}But I can if you Like{}}$$
+ $${\color{orange}Out{}}$$
+</p>
+
+<p align="center">
+ $${\color{darkorange}Lyric Credits : Jane Remover{}}$$
 </p>
 
 <p align="center">
@@ -90,8 +95,4 @@
 
   <p align="center">
   <img width="800" height="400" src="https://64.media.tumblr.com/59959034918eba90cdbd8d6d00564882/6f43c62ae0a5e7ad-95/s500x750/37728815a847d75d335e77c4f1ff24503007c0f7.pnj">
-</p>
-
-  <p align="center">
-︵‿︵‿︵‿︵︵‿︵‿︵‿︵︵‿︵‿︵‿︵‿︵‿︵‿︵︵‿︵‿︵‿︵︵‿︵‿︵‿︵
   </p>
