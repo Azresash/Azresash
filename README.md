@@ -65,7 +65,7 @@
   <a href= "https://github.com/ringmasterr"> #ʙᴇꜱᴛꜰʀɪᴇɴᴅ </a> ‹𝟹
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=your-github-Azresash&label=Chickens&color=6a4297&style=plastic&abbreviated=true&base=74">
+  <img src="https://komarev.com/ghpvc/?username=your-github-Azresash&label=Chickens&color=6f2100&style=plastic&abbreviated=true&base=74">
 </p>
 
 <p align="center">
