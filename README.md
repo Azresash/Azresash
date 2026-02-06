@@ -53,9 +53,9 @@
 ​🇵​​🇺​​🇵​​🇲​​🇮​​🇰​​🇦​​🇼​ (​🇲​​🇮​​🇰​​🇦​) ​🇲​​🇦​​🇩​​🇪​ ​🇲​​🇾​ ​🇷​​🇪​​🇳​​🇹​​🇷​​🇾​! (​🇹​​🇭​​🇦​​🇳​​🇰​​🇸​ ​🇬​​🇴​​🇦​​🇹​)
  </p> 
 
-   <p align="center">
-ʜɪ xɪɴɴʏ / ᴋᴀʏ!
- </p> 
+<p align="center">
+ $${\color{red}Hi Xinny/Kay!!{}}$$
+</p>
 
   <p align="center">
   <a href= "https://github.com/ringmasterr"> #ʙᴇꜱᴛꜰʀɪᴇɴᴅ </a> ‹𝟹
