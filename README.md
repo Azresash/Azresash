@@ -1,7 +1,3 @@
-<p align="center">
- $${\color{darkorange}︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵{}}$$
-</p>
-
   <p align="center">
   <img width="800" height="400" src="https://64.media.tumblr.com/4ba268ee3371d952d627f8a6abe7d2a1/6f43c62ae0a5e7ad-b6/s500x750/48933a39fc19a98e982b9c3d11e166768a725e53.pnj">
 </p>
