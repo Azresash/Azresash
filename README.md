@@ -54,7 +54,7 @@
  </p> 
 
 <p align="center">
- $${\color{red}Hi Xinny/Kay!!{}}$$
+ $${\color{darkorange}Hi Xinny/Kay!!{}}$$
 </p>
 
   <p align="center">
