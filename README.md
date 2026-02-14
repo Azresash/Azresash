@@ -54,11 +54,13 @@
  </p> 
 
 <p align="center">
- $${\color{darkorange}Hi Xinny/Kay!!{}}$$
+ $${\color{darkorange}HI XIN + KATA!!{}}$$
 </p>
 
   <p align="center">
-  <a href= "https://github.com/ringmasterr"> #ʙᴇꜱᴛꜰʀɪᴇɴᴅ </a> ‹𝟹
+  <a href= "https://github.com/valentinesxday"> 𝐵𝐸𝒮𝒯𝐹𝑅𝐼𝐸𝒩𝒟#𝟣 </a> <3
+  <a href= "https://github.com/ringmasterr"> 𝐵𝐸𝒮𝒯𝐹𝑅𝐼𝐸𝒩𝒟#𝟤 </a> ^.^
+
 
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=your-github-Azresash&label=Chickens&color=6f2100&style=plastic&abbreviated=true&base=74">
