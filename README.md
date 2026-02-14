@@ -58,8 +58,8 @@
 </p>
 
   <p align="center">
-  <a href= "https://github.com/valentinesxday"> 𝐵𝐸𝒮𝒯𝐹𝑅𝐼𝐸𝒩𝒟#𝟣 </a> <3
-  <a href= "https://github.com/ringmasterr"> 𝐵𝐸𝒮𝒯𝐹𝑅𝐼𝐸𝒩𝒟#𝟤 </a> ^.^
+  <a href= "https://github.com/ringmasterr"> 𝐵𝐸𝒮𝒯𝐹𝑅𝐼𝐸𝒩𝒟#𝟣 </a> <3
+  <a href= "https://github.com/valentinesxday"> 𝐵𝐸𝒮𝒯𝐹𝑅𝐼𝐸𝒩𝒟#𝟤 </a> ^.^
 
 
 <p align="center">
