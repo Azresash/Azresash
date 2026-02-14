@@ -54,7 +54,7 @@
  </p> 
 
 <p align="center">
- $${\color{darkorange}HI XIN + KATA!!{}}$$
+ $${\color{darkorange}HI XINNY + KATA!!{}}$$
 </p>
 
   <p align="center">
