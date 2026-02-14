@@ -92,7 +92,7 @@
 </p>
 
 <p align="center">
- $${\color{orange}Taken - not single{}}$$
+𝒯𝒶𝓀𝑒𝓃 - 𝒩𝑜𝓉 𝓈𝒾𝓃𝑔𝓁𝑒 ,, 𝓅𝓁𝑒𝒶𝓈𝑒 𝒹𝑜𝓃'𝓉 𝒻𝓁𝒾𝓇𝓉 𝑒𝓋𝑒𝓃 𝒿𝑜𝓀𝒾𝓃𝑔𝓁𝓎
 </p>
 
   <p align="center">
