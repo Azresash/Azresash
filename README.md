@@ -89,7 +89,11 @@
 
   <p align="center">
   <img width="100" height="50" src="https://64.media.tumblr.com/9b578f146dd2e24042316d8c9771dd32/6f1e5bdf78d09eae-97/s100x200/24f1bb6b050ce0c52673b1c916d95382b9b5bbf9.gifv">
-</p> 
+</p>
+
+<p align="center">
+ $${\color{orange}Taken - not single{}}$$
+</p>
 
   <p align="center">
   <img width="800" height="400" src="https://64.media.tumblr.com/59959034918eba90cdbd8d6d00564882/6f43c62ae0a5e7ad-95/s500x750/37728815a847d75d335e77c4f1ff24503007c0f7.pnj">
