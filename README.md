@@ -1,4 +1,4 @@
-<img align="left" width="500" height="800" alt="image" src="https://64.media.tumblr.com/add4c2182d97e7e544d6a57292e4c855/843a460acf2a939c-f1/s250x400/9365c458e44065df329dadcbc32dc8a619f9f35f.pnj" />
+<img align="left" width="600" height="10000" alt="image" src="https://64.media.tumblr.com/add4c2182d97e7e544d6a57292e4c855/843a460acf2a939c-f1/s250x400/9365c458e44065df329dadcbc32dc8a619f9f35f.pnj" />
 <p align="center">
 𓆝 𓆟 𓆞 𓆝 𓆟 𓆝 𓆟 𓆞 𓆝 𓆟
 </p>
@@ -24,7 +24,7 @@
 </p>
 
 <p align="center">
-●～●～●～●～●～●～●～●～●～●～●～●～
+▶︎ •၊၊||၊|။||||| 0:10
   </p> 
 
   <p align="center">
@@ -48,24 +48,13 @@
   </p> 
      
 <p align="center">
-𝚙𝚞𝚙𝚖𝚒𝚔𝚊𝚠 / 𝚖𝚒𝚔𝚊 𝚖𝚊𝚍𝚎 𝚖𝚢 𝚛𝚎𝚗𝚝𝚛𝚢
-</p> 
-
-<p align="center">
- $${\color{teal}HI XINNY + KATA!!{}}$$
+  <img src="https://komarev.com/ghpvc/?username=your-github-Azresash&label=Chickens&color=6f2100&style=plastic&abbreviated=true&base=74">
 </p>
-
-  <p align="center">
-  <a href= "https://github.com/ringmasterr"> 𝐵𝐸𝒮𝒯𝐹𝑅𝐼𝐸𝒩𝒟#𝟣 </a> <3
-  <a href= "https://github.com/valentinesxday"> 𝐵𝐸𝒮𝒯𝐹𝑅𝐼𝐸𝒩𝒟#𝟤 </a> ^.^
 
   <p align="center">
 ★ 𝚃𝚊𝚔𝚎𝚗 - 𝙽𝚘𝚝 𝚜𝚒𝚗𝚐𝚕𝚎 ,, 𝚙𝚕𝚎𝚊𝚜𝚎 𝚍𝚘𝚗'𝚝 𝚏𝚕𝚒𝚛𝚝 𝚎𝚟𝚎𝚗 𝚓𝚘𝚔𝚒𝚗𝚐𝚕𝚢 ★
 </p>
 
-<p align="center">
-  <img src="https://komarev.com/ghpvc/?username=your-github-Azresash&label=Chickens&color=6f2100&style=plastic&abbreviated=true&base=74">
-</p>
 
 <p align="center">
 𓆝 𓆟 𓆞 𓆝 𓆟 𓆝 𓆟 𓆞 𓆝 𓆟
