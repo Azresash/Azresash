@@ -48,16 +48,15 @@
   </p> 
      
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=your-github-Azresash&label=Chickens&color=6f2100&style=plastic&abbreviated=true&base=74">
+  <img src="https://komarev.com/ghpvc/?username=your-github-Azresash&label=Research&color=2f485a&style=plastic&abbreviated=true&base=74">
 </p>
 
   <p align="center">
 ★ 𝚃𝚊𝚔𝚎𝚗 - 𝙽𝚘𝚝 𝚜𝚒𝚗𝚐𝚕𝚎 ,, 𝚙𝚕𝚎𝚊𝚜𝚎 𝚍𝚘𝚗'𝚝 𝚏𝚕𝚒𝚛𝚝 𝚎𝚟𝚎𝚗 𝚓𝚘𝚔𝚒𝚗𝚐𝚕𝚢 ★
 </p>
 
-
 <p align="center">
-𓆝 𓆟 𓆞 𓆝 𓆟 𓆝 𓆟 𓆞 𓆝 𓆟
+──────── .✦. ────────
 </p> 
 
 <p align="center">
@@ -68,3 +67,7 @@
   <a href= "https://guns.lol/azresash"> 𝙶𝚞𝚗𝚜.𝚕𝚘𝚕 </a> ×
   <a href= "https://rentry.co/43ow244k"> 𝚁𝚎𝚗𝚝𝚛𝚢 </a> 
   <br>
+
+<p align="center">
+ ──────── .✦. ────────
+</p> 
