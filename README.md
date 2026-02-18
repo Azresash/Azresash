@@ -1,28 +1,26 @@
-  <p align="center">
-  <img width="800" height="400" src="https://64.media.tumblr.com/4ba268ee3371d952d627f8a6abe7d2a1/6f43c62ae0a5e7ad-b6/s500x750/48933a39fc19a98e982b9c3d11e166768a725e53.pnj">
-</p>
-  <p align="center">
-  <img width="600" height="400" src="https://64.media.tumblr.com/cd327c28dcf70e4a2e3cc6ce52dc956e/6f43c62ae0a5e7ad-09/s500x750/b6d4e9e945388240f772d80659ef82b129b0cb7b.pnj">
+<img align="left" width="500" height="800" alt="image" src="https://64.media.tumblr.com/add4c2182d97e7e544d6a57292e4c855/843a460acf2a939c-f1/s250x400/9365c458e44065df329dadcbc32dc8a619f9f35f.pnj" />
+<p align="center">
+𓆝 𓆟 𓆞 𓆝 𓆟 𓆝 𓆟 𓆞 𓆝 𓆟
 </p>
 
 <p align="center">
- $${\color{white}I Disappeared{}}$$
+ $${\color{white}Sailing on a ship{}}$$
 </p>
 
 <p align="center">
- $${\color{white}Like It's My{}}$$
+ $${\color{white}In a Bottle{}}$$
 </p>
 
 <p align="center">
- $${\color{orange}Last Night{}}$$
+ $${\color{teal}Anchor{}}$$
 </p>
 
 <p align="center">
- $${\color{orange}Out{}}$$
+ $${\color{white}All your Thoughts to The Bottom{}}$$
 </p>
 
 <p align="center">
- $${\color{darkorange}Lyric Credits : Jane Remover{}}$$
+ $${\color{blue}Lyric Credits : Fin Argus{}}$$
 </p>
 
 <p align="center">
@@ -30,71 +28,54 @@
   </p> 
 
   <p align="center">
-ᴍᴏꜱᴛʟʏ ᴏꜰꜰᴛᴀʙ
+𝙱𝚊𝚛𝚎𝚕𝚢 𝙾𝚗 𝚃𝚊𝚋
   </p>
 
   <p align="center">
-ᴅᴏ ɴᴏᴛ ᴄᴏᴘʏ ɴᴏʀ ꜱᴛᴇᴀʟ ᴜɴʟᴇꜱꜱ ᴘᴇʀᴍꜱ ɢɪᴠᴇɴ
+𝙿𝚕𝚎𝚊𝚜𝚎 𝚊𝚜𝚔 𝚏𝚘𝚛 𝙸𝚗𝚜𝚙𝚘 𝚍𝚘 𝙽𝙾𝚃 𝚌𝚘𝚙𝚢
   </p>
 
   <p align="center">
-ᴀʟᴡᴀʏꜱ ɪɴᴛᴇʀᴀᴄᴛ ᴡɪᴛʜ ᴄᴀᴜᴛɪᴏɴ
+𝙰𝚕𝚠𝚊𝚢𝚜 𝚒𝚠𝚌 𝚎𝚟𝚎𝚗 𝚏𝚛𝚒𝚎𝚗𝚍𝚜
   </p> 
 
   <p align="center">
-ᴄʜᴇᴄᴋ ʙʏɪ ᴀɴᴅ ᴅɴɪ ʙᴇꜰᴏʀᴇ ɪɴᴛᴇʀᴀᴄᴛɪɴɢ ᴀᴛ ᴀʟʟ
+𝙸 𝚙𝚛𝚘𝚋𝚊𝚋𝚕𝚢 𝚠𝚘𝚗'𝚝 𝚛𝚎𝚜𝚙𝚘𝚗𝚍 𝚛𝚒𝚐𝚑𝚝 𝚊𝚠𝚊𝚢, 𝚋𝚎 𝚙𝚊𝚝𝚒𝚎𝚗𝚝
   </p>
 
   <p align="center">
-●～●～●～●～●～●～●～●～●～●～●～●～
+𓆝 𓆟 𓆞 𓆝 𓆟 𓆝 𓆟 𓆞 𓆝 𓆟
   </p> 
      
 <p align="center">
-​🇵​​🇺​​🇵​​🇲​​🇮​​🇰​​🇦​​🇼​ (​🇲​​🇮​​🇰​​🇦​) ​🇲​​🇦​​🇩​​🇪​ ​🇲​​🇾​ ​🇷​​🇪​​🇳​​🇹​​🇷​​🇾​! (​🇹​​🇭​​🇦​​🇳​​🇰​​🇸​ ​🇬​​🇴​​🇦​​🇹​)
- </p> 
+𝚙𝚞𝚙𝚖𝚒𝚔𝚊𝚠 / 𝚖𝚒𝚔𝚊 𝚖𝚊𝚍𝚎 𝚖𝚢 𝚛𝚎𝚗𝚝𝚛𝚢
+</p> 
 
 <p align="center">
- $${\color{darkorange}HI XINNY + KATA!!{}}$$
+ $${\color{teal}HI XINNY + KATA!!{}}$$
 </p>
 
   <p align="center">
   <a href= "https://github.com/ringmasterr"> 𝐵𝐸𝒮𝒯𝐹𝑅𝐼𝐸𝒩𝒟#𝟣 </a> <3
   <a href= "https://github.com/valentinesxday"> 𝐵𝐸𝒮𝒯𝐹𝑅𝐼𝐸𝒩𝒟#𝟤 </a> ^.^
 
+  <p align="center">
+★ 𝚃𝚊𝚔𝚎𝚗 - 𝙽𝚘𝚝 𝚜𝚒𝚗𝚐𝚕𝚎 ,, 𝚙𝚕𝚎𝚊𝚜𝚎 𝚍𝚘𝚗'𝚝 𝚏𝚕𝚒𝚛𝚝 𝚎𝚟𝚎𝚗 𝚓𝚘𝚔𝚒𝚗𝚐𝚕𝚢 ★
+</p>
 
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=your-github-Azresash&label=Chickens&color=6f2100&style=plastic&abbreviated=true&base=74">
 </p>
 
 <p align="center">
-●～●～●～●～●～●～●～●～●～●～●～●～
-  </p> 
+𓆝 𓆟 𓆞 𓆝 𓆟 𓆝 𓆟 𓆞 𓆝 𓆟
+</p> 
 
 <p align="center">
   <b> ʟɪɴᴋꜱ <br>
-  <a href= "https://azresash.atabook.org"> ᴀᴛᴀ </a> ×
-  <a href= "https://brokencds.straw.page"> ꜱᴛʀᴀᴡᴘᴀɢᴇ </a> ×
-  <a href= "https://en.pronouns.page/@Fallingsouls"> ᴘʀɴꜱ.ᴘᴀɢᴇ </a> ×
-  <a href= "https://guns.lol/azresash"> ɢᴜɴꜱ.ʟᴏʟ </a> ×
-  <a href= "https://rentry.co/43ow244k"> ʀᴇɴᴛʀʏ </a> 
+  <a href= "https://azresash.atabook.org"> 𝙰𝚃𝙰 </a> ×
+  <a href= "https://brokencds.straw.page"> 𝚂𝚝𝚛𝚊𝚠𝚙𝚊𝚐𝚎 </a> ×
+  <a href= "https://en.pronouns.page/@Fallingsouls"> 𝙿𝚛𝚗𝚜.𝙿𝚊𝚐𝚎 </a> ×
+  <a href= "https://guns.lol/azresash"> 𝙶𝚞𝚗𝚜.𝚕𝚘𝚕 </a> ×
+  <a href= "https://rentry.co/43ow244k"> 𝚁𝚎𝚗𝚝𝚛𝚢 </a> 
   <br>
-    
-  <p align="center">
-  <img width="100" height="50" src="https://64.media.tumblr.com/d7b1f8c5bcc6e0a8d78d00846cadb35a/6f1e5bdf78d09eae-6b/s75x75_c1/36b3429ff94bb6d499c80e5c0a1f8f044c1a60ea.gifv">
-</p>  
-
-  <p align="center">
-  <img width="100" height="50" src="https://64.media.tumblr.com/8b91ecd0c8330a98419965a3fd16aba7/6f1e5bdf78d09eae-81/s75x75_c1/332b06a6fcc4fac4dc8483f81a9e32fa5387b97c.gifv">
-</p> 
-
-  <p align="center">
-  <img width="100" height="50" src="https://64.media.tumblr.com/9b578f146dd2e24042316d8c9771dd32/6f1e5bdf78d09eae-97/s100x200/24f1bb6b050ce0c52673b1c916d95382b9b5bbf9.gifv">
-</p>
-
-<p align="center">
-★ 𝚃𝚊𝚔𝚎𝚗 - 𝙽𝚘𝚝 𝚜𝚒𝚗𝚐𝚕𝚎 ,, 𝚙𝚕𝚎𝚊𝚜𝚎 𝚍𝚘𝚗'𝚝 𝚏𝚕𝚒𝚛𝚝 𝚎𝚟𝚎𝚗 𝚓𝚘𝚔𝚒𝚗𝚐𝚕𝚢 ★
-</p>
-
-  <p align="center">
-  <img width="800" height="400" src="https://64.media.tumblr.com/59959034918eba90cdbd8d6d00564882/6f43c62ae0a5e7ad-95/s500x750/37728815a847d75d335e77c4f1ff24503007c0f7.pnj">
-  </p>
