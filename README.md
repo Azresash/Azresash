@@ -1,4 +1,4 @@
-<img align="left" width="600" height="10000" alt="image" src="https://64.media.tumblr.com/add4c2182d97e7e544d6a57292e4c855/843a460acf2a939c-f1/s250x400/9365c458e44065df329dadcbc32dc8a619f9f35f.pnj" />
+<img align="center" width="400" height="600" alt="image" src="" />
 <p align="center">
 𓆝 𓆟 𓆞 𓆝 𓆟 𓆝 𓆟 𓆞 𓆝 𓆟
 </p>
