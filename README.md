@@ -58,7 +58,7 @@
 <p align="center">
   <b> ʟɪɴᴋꜱ <br>
   <a href= "https://azresash.atabook.org"> 𝙰𝚃𝙰 </a> ×
-  <a href= "https://brokencds.straw.page"> 𝚂𝚝𝚛𝚊𝚠𝚙𝚊𝚐𝚎 </a> ×
+  <a href= "https://azure-wrath.straw.page"> 𝚂𝚝𝚛𝚊𝚠𝚙𝚊𝚐𝚎 </a> ×
   <a href= "https://en.pronouns.page/@Fallingsouls"> 𝙿𝚛𝚗𝚜.𝙿𝚊𝚐𝚎 </a> ×
   <a href= "https://guns.lol/azresash"> 𝙶𝚞𝚗𝚜.𝚕𝚘𝚕 </a> ×
   <a href= "https://rentry.co/43ow244k"> 𝚁𝚎𝚗𝚝𝚛𝚢 </a> 
