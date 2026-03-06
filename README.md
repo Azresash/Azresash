@@ -1,4 +1,4 @@
-<img align="center" width="8000" height="500" alt="image" src="https://64.media.tumblr.com/d0ca77e07532fdc279b68cdae35686dc/acd92770a4fde30a-50/s250x400/d76d144dc3ee4d2defe734248ca3871756b65d49.pnj" />
+<img align="center" width="8000" height="500" alt="image" src="https://64.media.tumblr.com/0b456488ad61845db02bcc16fb05681c/acd92770a4fde30a-ea/s2048x3072/eb204664ebb719f2b298fe0f004b50992a1d35c2.pnj" />
      
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=your-github-Azresash&label=2/23/26&color=2c3073&style=plastic&abbreviated=true&base=74">
