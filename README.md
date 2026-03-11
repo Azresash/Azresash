@@ -1,5 +1,3 @@
-<img align="center" width="600" height="500" alt="https://64.media.tumblr.com/5b699f6b9454e6975f644abb6ae43b7e/40fdf79f8cc669ed-2a/s500x750/0031d1b8885b7a8fc215d46be8650c80c1d00b16.gifv" />
-
 <p align="center">
 ​🇷​​🇴​​🇹​ ノ ​🇼​​🇪​​🇲​​🇲​​🇧​​🇺​​
 </p>
