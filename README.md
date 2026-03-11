@@ -20,5 +20,5 @@
   <br>
 
   <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=your-github-Azresash&label=2/23/26&color=2c3073&style=plastic&abbreviated=true&base=74">
+  <img src="https://komarev.com/ghpvc/?username=your-github-Azresash&label=BreezeRods&color=7f2d69&style=plastic&abbreviated=true&base=74">
 </p>
