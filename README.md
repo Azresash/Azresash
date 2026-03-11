@@ -1,7 +1,7 @@
-<img align="center" width="800" height="500" alt="image" src="https://64.media.tumblr.com/0b456488ad61845db02bcc16fb05681c/acd92770a4fde30a-ea/s2048x3072/eb204664ebb719f2b298fe0f004b50992a1d35c2.pnj" />
+<img align="center" width="800" height="500" alt="image" src="https://64.media.tumblr.com/c688fcba0c1d0dd1db7ba8083d8e4902/50d35608c61cefcd-ef/s250x400/0165f80765ccb9750a3420f922af4c1862291147.pnj" />
 
 <p align="center">
-​🇷​​🇴​​🇹​ ノ ​🇩​​🇪​​🇦​​🇩​
+​🇷​​🇴​​🇹​ ノ ​🇼​​🇪​​🇲​​🇲​​🇧​​🇺​​
 </p> 
 
 <p align="center">
@@ -16,3 +16,5 @@
   <p align="center">
   <img src="https://komarev.com/ghpvc/?username=your-github-Azresash&label=2/23/26&color=2c3073&style=plastic&abbreviated=true&base=74">
 </p>
+
+<img align="center" width="800" height="500" alt="image" src="https://64.media.tumblr.com/107f6b25c651deee34fca4797b15b1e3/50d35608c61cefcd-69/s250x400/2561d2ee71c4c9f6eaf8b0eee8e0a542c34bff8d.pnj" />
