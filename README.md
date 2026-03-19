@@ -17,6 +17,10 @@
 </p> 
 
 <p align="center">
+  <b> ​​🇼​​🇮​​🇸​​🇩​​🇴​​🇲​ ​🇦​​🇳​​🇩​ ​🇸​​🇵​​🇮​​🇷​​🇮​​🇹 <br>
+  <a href= "https://github.com/Sharooh"> ​​🇲​​🇾​ ​🇪​​🇬​​🇬​ <3​ </a>
+
+<p align="center">
   <b> ʟɪɴᴋꜱ <br>
   <a href= "https://azresash.atabook.org"> 𝙰𝚃𝙰 </a> ×
   <a href= "https://Wemmbusheart.straw.page"> 𝚂𝚝𝚛𝚊𝚠𝚙𝚊𝚐𝚎 </a> ×
