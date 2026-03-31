@@ -26,7 +26,7 @@
   <a href= "https://Wemmbusheart.straw.page"> 𝚂𝚝𝚛𝚊𝚠𝚙𝚊𝚐𝚎 </a> ×
   <a href= "https://en.pronouns.page/@Fallingsouls"> 𝙿𝚛𝚗𝚜.𝙿𝚊𝚐𝚎 </a> ×
   <a href= "https://guns.lol/azresash"> 𝙶𝚞𝚗𝚜.𝚕𝚘𝚕 </a> ×
-  <a href= "https://rentry.co/43ow244k"> 𝚁𝚎𝚗𝚝𝚛𝚢 </a> 
+  <a href= "https://rentry.co/all1w4ntisy0u"> 𝚁𝚎𝚗𝚝𝚛𝚢 </a> 
   <br>
 
   <p align="center">
