@@ -25,8 +25,9 @@ $${\color{blue}Heavens Gate{}}$$
 </p> 
 
 <p align="center">
-  <b> ​​🇼​​🇮​​🇸​​🇩​​🇴​​🇲​ ​🇦​​🇳​​🇩​ ​🇸​​🇵​​🇮​​🇷​​🇮​​🇹 <br>
-  <a href= "https://github.com/Sharooh"> ​​🇲​​🇾​ ​🇪​​🇬​​🇬​ <3​ </a>
+  <b> ​​ꜰᴏʟʟᴏᴡ ᴛʜᴇꜱᴇ ᴘᴇꜱᴛꜱ :3 <br>
+  <a href= "https://github.com/Sharooh"> ʀᴀʏʀᴀʏ​ <3​ </a>
+  <a href= "https://github.com/soraaoraa"> ​​ꜱᴏʀᴀᴀ ! :ᴅ​ <3​ </a>
 
 <p align="center">
   <b> ʟɪɴᴋꜱ <br>
