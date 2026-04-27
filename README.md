@@ -29,8 +29,8 @@ $${\color{teal}"For them, that is."{}}$$
 <p align="center">
   <b> ​​ꜰᴏʟʟᴏᴡ ᴛʜᴇꜱᴇ ᴘᴇꜱᴛꜱ :3 <br>
   <a href= "https://github.com/Sharooh"> ʀᴀʏʀᴀʏ​ <3​ </a>
-  <a href= "https://github.com/ringmasterr"> ​​xɪɴɴʏ :ᴅ ! :ᴅ​ <3​ </a>
-  <a href= "https://github.com/soraaoraa"> ​​ꜱᴏʀᴀᴀ ! :ᴅ​ <3​ </a>
+  <a href= "https://github.com/ringmasterr"> ​​xɪɴɴʏ :ᴅ ! </a>
+  <a href= "https://github.com/soraaoraa"> ​​ꜱᴏʀᴀᴀ !​ </a>
 
 <p align="center">
   <b> ʟɪɴᴋꜱ <br>
