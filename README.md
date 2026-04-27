@@ -1,7 +1,5 @@
-<p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31gia4wndtbhppdifsh3knyzus7e&cover_image=true&theme=spotify-embed&show_offline=false&background_color=361a51&interchange=false&profanity=false&bar_color=8b349d&bar_color_cover=true&mode=light">
-  </a>
+  <p align="center">
+  <img width="400" height="400" src="https://64.media.tumblr.com/0196d347ad20a67c400474be0eaeb109/c89cf441b2ab867d-5b/s500x750/413982e96b5a92d467dca013dbe53b571f47d489.pnj">
 </p>
 
 <p align="center">
@@ -21,12 +19,12 @@
 </p> 
 
 <p align="center">
-$${\color{white}I'll See You At{}}$$
+$${\color{orange}"This is gonna hurt."{}}$$
 </p> 
 
 <p align="center">
-$${\color{blue}Heavens Gate{}}$$
-</p> 
+$${\color{teal}"For them, that is."{}}$$
+</p>
 
 <p align="center">
   <b> ​​ꜰᴏʟʟᴏᴡ ᴛʜᴇꜱᴇ ᴘᴇꜱᴛꜱ :3 <br>
@@ -42,6 +40,11 @@ $${\color{blue}Heavens Gate{}}$$
   <a href= "https://rentry.co/bangbangboom"> 𝚁𝚎𝚗𝚝𝚛𝚢 </a> 
   <br>
 
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31gia4wndtbhppdifsh3knyzus7e&cover_image=true&theme=spotify-embed&show_offline=false&background_color=361a51&interchange=false&profanity=false&bar_color=8b349d&bar_color_cover=true&mode=light">
+  </a>
+</p>
   <p align="center">
   <img src="https://komarev.com/ghpvc/?username=your-github-Azresash&label=Scripts&color=305595&style=plastic&abbreviated=true&base=74">
 </p>
