@@ -1,5 +1,5 @@
   <p align="center">
-  <img width="400" height="400" src="https://64.media.tumblr.com/0196d347ad20a67c400474be0eaeb109/c89cf441b2ab867d-5b/s500x750/413982e96b5a92d467dca013dbe53b571f47d489.pnj">
+  <img width="500" height="500" src="https://64.media.tumblr.com/0196d347ad20a67c400474be0eaeb109/c89cf441b2ab867d-5b/s500x750/413982e96b5a92d467dca013dbe53b571f47d489.pnj">
 </p>
 
 <p align="center">
@@ -46,5 +46,5 @@ $${\color{teal}"For them, that is."{}}$$
   </a>
 </p>
   <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=your-github-Azresash&label=Scripts&color=305595&style=plastic&abbreviated=true&base=74">
+  <img src="https://komarev.com/ghpvc/?username=your-github-Azresash&label=Kills&color=305595&style=plastic&abbreviated=true&base=74">
 </p>
