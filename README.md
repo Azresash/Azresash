@@ -48,5 +48,3 @@ $${\color{teal}"For them, that is."{}}$$
   <p align="center">
   <img src="https://komarev.com/ghpvc/?username=your-github-Azresash&label=Scripts&color=305595&style=plastic&abbreviated=true&base=74">
 </p>
-
-<video src="https://github.com/user-attachments/assets/8ab0b078-1b5b-4bce-9a0d-156141512138" width="200" height="50" controls></video>
