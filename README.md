@@ -62,3 +62,7 @@ $${\color{teal}"For them, that is."{}}$$
   <p align="center">
   <img width="570" height="400" src="https://64.media.tumblr.com/711bfd4ee29fe51c0d5cda73951a6bb7/640644e4f935eb04-2c/s500x750/18e24997e4d2abc92c46d5b0f7e45d7af8406b33.pnj">
 </p>
+
+  <p align="center">
+  <img width="570" height="800" src="https://i.pinimg.com/736x/33/ff/9b/33ff9b1084f3413edb23a27e15edcac9.jpg">
+</p>
