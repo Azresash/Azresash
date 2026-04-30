@@ -1,9 +1,9 @@
   <p align="center">
-  <img width="500" height="500" src="https://64.media.tumblr.com/0196d347ad20a67c400474be0eaeb109/c89cf441b2ab867d-5b/s500x750/413982e96b5a92d467dca013dbe53b571f47d489.pnj">
+  <img width="800" height="170" src="https://64.media.tumblr.com/3ccf98f546746fbab1972c983aced09e/640644e4f935eb04-c0/s500x750/9f307ba06ed52e292c434ed5488c61f3268ecb41.pnj">
 </p>
 
 <p align="center">
-​꒰ 🇷​​🇴​​🇹​ ノ ​​​ᴄᴏɪʟ ノ ​🇼​​🇪​​🇲​​🇲​​🇧​​🇺 ꒱​​
+​꒰ 🇷​​🇴​​🇹​ ノ ​​​ᴄᴏɪʟ ノ ʙᴀɴ ノ ​🇼​​🇪​​🇲​​🇲​​🇧​​🇺 ꒱​​
 </p>
 
 <p align="center">
@@ -57,4 +57,8 @@ $${\color{teal}"For them, that is."{}}$$
 </p>
   <p align="center">
   <img src="https://komarev.com/ghpvc/?username=your-github-Azresash&label=Kills&color=305595&style=plastic&abbreviated=true&base=74">
+</p>
+
+  <p align="center">
+  <img width="570" height="400" src="https://64.media.tumblr.com/711bfd4ee29fe51c0d5cda73951a6bb7/640644e4f935eb04-2c/s500x750/18e24997e4d2abc92c46d5b0f7e45d7af8406b33.pnj">
 </p>
