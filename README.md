@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-​꒰ 🇷​​🇴​​🇹​ ノ ​​​ᴄᴏɪʟ ノ ʙᴀɴ ノ ​🇼​​🇪​​🇲​​🇲​​🇧​​🇺 ꒱​​
+​꒰ 🇸​​🇰​​🇪​​🇹​​🇨​​🇭​ ノ 🇷​​🇴​​🇹​ ノ ​​​ᴄᴏɪʟ ノ ʙᴀɴ ꒱​​
 </p>
 
 <p align="center">
@@ -27,11 +27,11 @@
 </p> 
 
 <p align="center">
-$${\color{orange}"This is gonna hurt."{}}$$
+$${\color{lightblue}Moon, Tell Me If I Could{}}$$
 </p> 
 
 <p align="center">
-$${\color{teal}"For them, that is."{}}$$
+$${\color{lightblue}Send My Heart Up To You{}}$$
 </p>
 
 <p align="center">
