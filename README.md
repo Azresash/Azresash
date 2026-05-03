@@ -1,5 +1,5 @@
   <p align="center">
-  <img width="800" height="170" src="https://64.media.tumblr.com/3ccf98f546746fbab1972c983aced09e/640644e4f935eb04-c0/s500x750/9f307ba06ed52e292c434ed5488c61f3268ecb41.pnj">
+  <img width="800" height="70" src="https://64.media.tumblr.com/dfd0a141c8440c6ba737b1b7029a462a/cbde3f46d74917f9-d9/s500x750/75aac3a577bcfa070dacaf9e8f1a1d38bd85c31a.pnj">
 </p>
 
 <p align="center">
@@ -60,9 +60,17 @@ $${\color{lightblue}Send My Heart Up To You{}}$$
 </p>
 
   <p align="center">
-  <img width="570" height="400" src="https://64.media.tumblr.com/711bfd4ee29fe51c0d5cda73951a6bb7/640644e4f935eb04-2c/s500x750/18e24997e4d2abc92c46d5b0f7e45d7af8406b33.pnj">
+  <img width="800" height="70" src="https://64.media.tumblr.com/0b06e9babc460a98df50a6be158ff702/cbde3f46d74917f9-d3/s500x750/4cc98e18210a161c690a8d154b00719175fa2a5e.pnj">
 </p>
 
   <p align="center">
-  <img width="570" height="800" src="https://i.pinimg.com/736x/33/ff/9b/33ff9b1084f3413edb23a27e15edcac9.jpg">
+  <img width="100" height="70" src="https://64.media.tumblr.com/1dfd5df1233abde7195b40b032971f62/473cb7d99dd6bf5d-40/s100x200/94191450b1e6133d8db191b7fffefaea80ff2c90.pnj">
+</p>
+
+  <p align="center">
+  <img width="100" height="70" src="https://64.media.tumblr.com/93008e05755efb380e25511a2f794fdd/82f062ad64b65975-a3/s100x200/4d626ee6e7823f952495c6cfcbe6d50bce94c40d.pnj">
+</p>
+
+  <p align="center">
+  <img width="100" height="70" src="https://64.media.tumblr.com/41a6de61204856e4af5b382cb938b754/9c33de92c99e9857-98/s250x400/0190ab4378413584082992872f8eb85ee1ab5ee5.pnj">
 </p>
