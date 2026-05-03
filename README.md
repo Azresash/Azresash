@@ -38,7 +38,7 @@ $${\color{lightblue}Send My Heart Up To You{}}$$
   <b> ​​ꜰᴏʟʟᴏᴡ ᴛʜᴇꜱᴇ ᴘᴇꜱᴛꜱ :3 <br>
   <a href= "https://github.com/Sharooh"> ʀᴀʏʀᴀʏ​ <3​ </a>
   <a href= "https://github.com/ringmasterr"> ​​xɪɴɴʏ :ᴅ ! </a>
-  <a href= "https://github.com/soraaoraa"> ​​ꜱᴏʀᴀᴀ !​ </a>
+  <a href= "https://github.com/princezammery"> ​​ꜱᴏʀᴀᴀ !​ </a>
 
 <p align="center">
   <b> ʟɪɴᴋꜱ <br>
